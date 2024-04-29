@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @daniel-at-oag
+- 👀 I’m interested in pointing people to Jesus.
+- 🌱 I’m currently learning how to use ChatGPT to build automation tools.
+- 💞️ I’m looking to collaborate on... well I'm not advanced enough for all that.
+- 📫 How to reach me daniel@oxfordag.org
+- ⚡ Fun fact: Just a normal Jesus-loving geek.
